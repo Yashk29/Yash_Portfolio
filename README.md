@@ -1,2 +1,2 @@
 DO VISIT MY PORTFOLIO
-https://yashk29.github.io/Yash_Portfolio/
+https://yashkansara29.github.io/Yash_Portfolio/
